@@ -1,1 +1,1 @@
-# ServicioTecnico.io
+# ServicioTe.io
